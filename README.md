@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Rairaiskitvomen
 - 👀 I’m interested in Data Science , ML and Artificial intelligence
-- 🌱 I’m currently learning 
+- 🌱 I’m improving everyday
+- i rarely eat chicken and fish but i love egg so much
 - 💞️ I’m looking to collaborate on more Data Science Projects and Ml projects
 - 📫 How to reach me , Whatsapp - + 234 91 2168 7538 , instagram :- https://www.instagram.com/rairaiskitvomen2005/
 
