@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rairaiskitvomen
+- 👋 Hi, I’m Rereloluwa Akinlade(Rairaiskitvomen)
 - 👀 I’m interested in Data Science , ML and Artificial intelligence
 - 🌱 I’m improving everyday
 - i rarely eat chicken and fish but i love egg so much
